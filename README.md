@@ -56,10 +56,6 @@ Clean, readable, well-commented code will be dragged to the ninth circle persona
 
 Only spaghetti, cursed, chaotic disasters belong here. 🌀😈
 
-## License
-
-[AGPL-3.0-or-later](LICENSE) — Even Hell believes in source availability… sometimes. ⚖️🔥
-
 ---
 
 May your bugs multiply like demons and your commits burn bright forever.  

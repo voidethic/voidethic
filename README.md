@@ -57,8 +57,8 @@ Share your sins with the damned. 😈
 </div>
 
 ## 🔥 Discord Server
-
-[![Join Discord](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExYmc0dXM5Z2htOWY3OHFxdjdmdnltY3dsMjBuZXhsMTc0MDBseTlodyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/yMWdlaSuPk7WkQaQBY/giphy.gif)](https://discord.gg/9hBgUJK33x)
+## Click On Gif
+[![Join Discord](https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExYmc0dXM5Z2htOWY3OHFxdjdmdnltY3dsMjBuZXhsMTc0MDBseTlodyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/yMWdlaSuPk7WkQaQBY/giphy.gif)](https://discord.gg/9hBgUJK33x)                                             
 
 
 ## 🩸 How to Sacrifice to the Vault

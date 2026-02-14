@@ -50,7 +50,7 @@ Share your sins with the damned. 😈
 ![JS Hell](https://img.shields.io/badge/JavaScript-B22222?style=for-the-badge&logo=javascript&logoColor=white)
 ![C# Inferno](https://img.shields.io/badge/C%23-8B0000?style=for-the-badge&logo=c-sharp&logoColor=white)
 
-![Hell Divider](https://user-images.githubusercontent.com/74038190/220778099-a5e28b0f-6d59-4f8e-9885-66268a22e2c1.png)
+![Hell Divider](https://i.pinimg.com/1200x/36/3c/3d/363c3dbf7b32cdc1df9661c629c9d503.jpg)
 
 **Burning through code like hellfire! 🔥**
 
